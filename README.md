@@ -1,1 +1,2 @@
 # Explorando-un-mundo-de-posibilidades
+ Participar en un intercambio internacional te abre las puertas a un mundo lleno de retos y aprendizajes. Es más que estudiar en otro país; es descubrir nuevas culturas, mejorar tus habilidades lingüísticas y construir conexiones globales. Estas experiencias no solo enriquecen tu vida personal, sino que también te preparan para destacar en un entorno profesional competitivo. Atrévete a redefinir tus metas y a explorar un futuro sin límites.
